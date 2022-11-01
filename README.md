@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rohangupta00812@gmail.com**
 
-- 📄 Know about my experiences [resume.pdf](/)
+- 📄 Know about my experiences ...
 
 - ⚡ Fun fact **I think , I am introvert who talk less around people only talks about study and work.**
 
